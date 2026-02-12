@@ -29,4 +29,3 @@ I am passionate about scientific research, environmental sustainability, and app
 
 ## Contact
 Email: jabuliletracy101@gmail.com
-LinkedIn: (optional)
